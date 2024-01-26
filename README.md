@@ -1,3 +1,8 @@
+For help contact George@ForgedApp.Net
+
+
+
+
 Privacy Policy
 
 Privacy Policy for Forged
